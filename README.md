@@ -1,0 +1,1 @@
+# JogaIrAjurvedaAutomatinisTestavimas_BaigiamasisDarbas
